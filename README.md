@@ -1,1 +1,1 @@
-# Before Jarvis, Siri, Cortana, etc. we had SYD-E asisting Captain Vyom
+# Before Jarvis, Siri, Cortana, etc. we had SYD-E assisting Captain Vyom
